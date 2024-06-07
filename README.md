@@ -8,5 +8,3 @@ Meu  nome é Marya Eduarda Martineli
 
 ## _Você pode entrar em contato comigo 📱_
 @Marya_Martineli - Instagram 
-
-Porfavor ignore o nome diferente do original, meu nome é Marya porém quando traduzida a página ele muda para Maria
